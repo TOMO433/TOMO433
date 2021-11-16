@@ -1,0 +1,6 @@
+- I’m @TOMO433.  
+- I'm from Croatia 🇭🇷.
+- I’m interested in computers and coding.
+- How to reach me 📫 : 
+  - Discord: TOMO433#3496
+  - Instagram: @tomoo433
